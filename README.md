@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hardikxyzabc
 
 - 🌱 I’m currently learning ...first year computer engineering in sanjivani college of engineering 
-- 💞️ I’m looking to collaborate on sports lover ...
+
 - 📫 How to reach me ...from ahmednagar to kopargaon bus or train to Kopargaon from anywhere 
 
 <!---
